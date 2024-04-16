@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey there! My name is Matthew Webb and I'm a third year Astrophysics student at Wits University 🤓🪐🔭 I like swimming and my no.1 hobby right now is photography 📸 I have a cat named Zuko (yes, Zuko from Avatar) and coffee is the one thing that makes my day ☕️ 
 
 <!--
 **Matth3wW3bb/Matth3wW3bb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
